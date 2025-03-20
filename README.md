@@ -1,4 +1,4 @@
-![IMG_4612](https://github.com/user-attachments/assets/bf7d6d1a-dcd7-4c86-a372-47d271d2681b)
+<img src="https://github.com/user-attachments/assets/bf7d6d1a-dcd7-4c86-a372-47d271d2681b" width="5000">
 
 
 <!--
