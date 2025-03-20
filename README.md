@@ -1,4 +1,5 @@
-## Hi there 👋
+![IMG_4612](https://github.com/user-attachments/assets/bf7d6d1a-dcd7-4c86-a372-47d271d2681b)
+
 
 <!--
 **crimefool/crimefool** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
